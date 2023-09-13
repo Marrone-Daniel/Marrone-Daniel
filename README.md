@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Marrone-Daniel! (not real name...)
+- 👋 Hi, I’m @Marrone-Daniel!
 - 😍 I’m interested in GTA ONLIE
 - 💀 Cutting + building muscle
 - 📫 My email here: myd31425@163.com
