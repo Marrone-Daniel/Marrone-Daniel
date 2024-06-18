@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Marrone-Daniel!
-- 😍 I’m interested in GTA ONLIE
-- 💀 Studying C....
+- 😍 GTA ONLIE FAN!
+- 💀 Coding....
 - 📫 My email here: myd31425@163.com
 
 <!---
